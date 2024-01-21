@@ -2,7 +2,7 @@
 
 ### About Us
 
-Welcome to YY ECOMM, a leading professional recruitment consultancy dedicated to connecting top talent with exciting opportunities in the fields of Web3, FinTech, and Internet industries. Currently led by Kiki, our team comprises 10 consultants and senior consultants, specializing in mid-to-senior level placements.
+Welcome to YY ECOMM, a leading professional recruitment consultancy dedicated to connecting top talent with exciting opportunities in the fields of Web3, FinTech, and Internet industries. Currently led by Kiki, our team comprises 25 consultants and senior consultants, specializing in mid-to-senior level placements.
 
 ### Our Focus
 
