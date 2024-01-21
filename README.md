@@ -7,6 +7,7 @@ Welcome to YY ECOMM, a leading professional recruitment consultancy dedicated to
 ### Our Focus
 
 At YY ECOMM, we excel in placing candidates in permanent, contract, temporary, and interim positions globally. With a stronghold in Hong Kong and Shenzhen, China, we cater to diverse client needs across the Asia Pacific region.
+As of Jan 2024, we have proudly fulfilled more than 500+ headcounts within the FinTech/Web3/Blockchain field.
 
 ### Why Choose Us?
 
